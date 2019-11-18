@@ -1,2 +1,2 @@
 Hello, Welcome to Mohammed Technologies!!!
-We are offering a lot of exciting prizes.
+Today, we have just launch the updated version of our e-commerce platform.
