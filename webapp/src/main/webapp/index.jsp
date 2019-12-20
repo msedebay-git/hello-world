@@ -5,5 +5,3 @@ As of today's date, we will not grant access to anyone on this premise,
 
 Once again, welcome you all for coming
 We shall see next time!!
-Thank you!
-
